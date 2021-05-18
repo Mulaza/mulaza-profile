@@ -1,8 +1,5 @@
 ### Hey there ✌️
 
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
 - 💬 Ask me about Attack on Titan ⚔️
 - 📫 How to reach me: mulaza.dev@Gmail.com
 - ⚡ Fun fact: I like turtles 🐢!
