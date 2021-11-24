@@ -1,4 +1,4 @@
-### Hey there ✌️
+### Hey Wussup
 
 - 💬 Ask me about Attack on Titan ⚔️
 - 📫 How to reach me: mulaza.dev@Gmail.com
