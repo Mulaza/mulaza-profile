@@ -1,7 +1,7 @@
 ### Hey Wussup
 
 - 💬 Ask me about Attack on Titan ⚔️
-- 📫 How to reach me: mulaza.dev@Gmail.com
+- 📫 How to reach me: mulazajacinto.dev@Gmail.com
 - ⚡ Fun fact: I like turtles 🐢!
 
 
